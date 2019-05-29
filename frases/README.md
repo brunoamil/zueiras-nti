@@ -104,6 +104,7 @@
 
 >*"...Ei Werliton, tu vai lá por trás hoje?" - (O recruta1, Ramon)*
 
+>*"Humm, vai ficar segurando na cabecinha?" - (CABECINHA, Ramon)*
 
 
 
